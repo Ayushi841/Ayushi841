@@ -9,7 +9,7 @@
 - 🔭 I love to dance and talk to new people
 - 🌱 I’m currently spending my time in exploring new technologies
 - 👯 I’m looking to learn new technologies and meet some amazing people
-- 🥅 2021 Goals: Contribute more to Open Source projects and 
+- 🥅 2022 Goals: just to be happy 
 - ⚡ Fun fact: I love to talk and laugh
 - 🎵I watch a lot of kdramas and love to dance
 
