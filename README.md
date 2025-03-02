@@ -4,7 +4,7 @@
 
 
 
-## I'm an Undergraduate Student and I do competitive programming for fun!!!
+## I'm software engineer in JP Morgan chase and comapny in Mumbai
 
 - 🔭 I love to dance and talk to new people
 - 🌱 I’m currently spending my time in exploring new technologies
