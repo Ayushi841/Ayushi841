@@ -4,7 +4,7 @@
 
 
 
-## I'm software engineer in JP Morgan chase and comapny in Mumbai
+## I am a software engineer in JP Morgan chase and comapny in Mumbai
 
 - 🔭 I love to dance and talk to new people
 - 🌱 I’m currently spending my time in exploring new technologies
